@@ -36,9 +36,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Greenes Arcadia, or Menaphon: Camillaes alarum to slumber Euphues in his melancholy cell at Silexedr
+
+1. TO THE GENTLEMEN
+STVDENTS OF BOTH
+VNIVERSITIES.
+DElicious words, the life of wanton wit,That doth inſpire our ſoules with ſweet content,Why hath you
 #####Body#####
-Greenes Arcadia, or Menaphon: Camillaes alarum to slumber Euphues in his melancholy cell at Silexedr
+
+1. The reports of the Shepheards.
+
 **Types of content**
 
   * There are 492 **verse** lines!
